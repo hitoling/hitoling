@@ -1,4 +1,7 @@
 <div align="center"> 
-im living in ur walls sillyman. im living in ur motherfucking balls<br>
-<a href="https://discordapp.com/users/1149471699683790868">contact</a>  <a href="https://rentry.co/hitoling">rentry</a>
+  <img src="https://i.pinimg.com/736x/b1/df/38/b1df3825383692c6bd777ae37a400748.jpg" height=300px><br>
+she said, "i've been waiting for a friend<br>
+waiting for a friend that i could call today<br>
+i thought we could go out and play a game"<br>
+<a href="https://discordapp.com/users/1149471699683790868">contact</a>  <a href="https://rentry.co/fuckcmments">rentry</a>
 </div>
