@@ -1,5 +1,4 @@
 <div align="center"> 
-  <img src="https://i.pinimg.com/736x/b1/df/38/b1df3825383692c6bd777ae37a400748.jpg" height=300px><br>
 she said, "i've been waiting for a friend<br>
 waiting for a friend that i could call today<br>
 i thought we could go out and play a game"<br>
